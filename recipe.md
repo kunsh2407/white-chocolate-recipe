@@ -1,0 +1,1 @@
+melt white chocolate, add it into the mould, add topping of ur choice,then freeze it.
